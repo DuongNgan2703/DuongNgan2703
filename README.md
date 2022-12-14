@@ -1,4 +1,4 @@
-  ### Hi there 👋. I'm Ngan and i'm a funny girl 😄
+  ### Hi👋. I'm Ngan and i'm a funny girl 😄
 
 - 💬 *Follow your heart, never look back 🌱*
 
